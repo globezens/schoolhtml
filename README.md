@@ -1,1 +1,1 @@
-School stuff during the latter COVID-19 pandemic
+School stuff made during the latter COVID-19 pandemic
